@@ -1,4 +1,4 @@
-
+rare catch a monster Scripts | auto-catch + inf-balls is your go-to resource for catch a monster domination. Featuring auto-catch and inf-balls, our scripts are engineered to maximize your efficiency and enjoyment. Say goodbye to tedious grinding and hello to effortless victories.
 
 
 ---
